@@ -220,4 +220,4 @@ Cut the Rope 2 is offered as a **full free version** with all features and updat
 Ready to join Om Nom on his candy-collecting adventure? Download **Cut the Rope 2** now and enjoy the fun!
 
 ---
-**Last updated:** 2026-10-25 02:38:01 UTC
+**Last updated:** 2026-10-25 07:58:50 UTC
